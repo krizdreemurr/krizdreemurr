@@ -2,10 +2,6 @@
 <img src="https://media1.tenor.com/m/5E4WCiz6ISUAAAAd/garcello-fridaynightfunkin.gif" width="150">
 
 
-</div>
-
-
-
 <p align="center">
 $\text{\color{#ef0000}KRIS / CHARA / CLOVER / DIVA}$ $\text{\color{#ffbfbf}. . .}$ | MINOR!!! 16+ $\text{\color{#ff0000}DNI!!}$<br>
  I RLLY RLLY LUV UNDERTALE, AND I CODE IN HTML AND CSS OCCASIONALLY!<br>
@@ -22,6 +18,10 @@ $\text{\color{#ef0000}KRIS / CHARA / CLOVER / DIVA}$ $\text{\color{#ffbfbf}. . .
 
  <i>DISCORD</i>: <u>krizdreemurr</u><br>
  <sub>MIGHT add more but for now...discord is fine..</sub>
+
+ </div>
+<div align="center">
+ <img src="https://64.media.tumblr.com/b4ee01d99adaa22d2eae197a76d26ab5/00ab7168b67b3c99-3d/s100x200/0b9ad6cc3f154da54846ac05f0afffd93a3b8964.gifv" width="100" align="center">
 
  </div>
 
