@@ -1,16 +1,13 @@
-## Hi there 👋
+HAIAHAHAI!!! IF UR FROM PONYTOWN, THIS'LL TEACH YOU HOW TO INTERACT WITH ME!!! I USUALLY DONT INT WITH ANY1,, BUT HERES HOW YOU CAN,, WITH ME!
 
-<!--
-**krizdreemurr/krizdreemurr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+***
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 1. ASK FIRST IN WHISPERS!!
+IM NOT ALLAT TALKATIVE AT FIRST BUT I MIGHT LET YOU TALK TO ME...IDK..DEPENDS
+
+### 2. THERE ISNT A 2, THAT'S IT!!!
+just ask,,,thats my guidelines
+ 
+ 
+ ![tenor](https://github.com/user-attachments/assets/f80a01e4-503b-4ced-bd50-c123f428bef1)
