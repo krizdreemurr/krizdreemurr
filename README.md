@@ -5,7 +5,7 @@
 
 
 <p align="center">
-$\text{\color{#ff0a45}KRIS / CHARA / CLOVER / DIVA}$ $\text{\color{#ffbfbf}. . .}$ | MINOR!!! 16+ $\text{\color{#ff0000}DNI!!}$<br>
+$\text{\color{#ff0a45}KRIS / CALLIOPE / CALLIE / DIVA}$ $\text{\color{#ffbfbf}. . .}$ | MINOR!!! 16+ $\text{\color{#ff0000}DNI!!}$<br>
 <i> they / she / xe | . . . nonbinary </i> <br>
 
 
